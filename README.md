@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @liveserene
 - 👀 I’m interested in ART!, Photography, Beauty Products, and being the BEST Mom I can be!
 - 🌱 I’m currently studying for my Bachelors of Science in Criminal Justice, focused on Substance abuse counseling.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with POSITIVE PEOPLE.  Let's beautify the world.
 - 📫 How to reach me by email at Leiannwrites@gmail.com
 
 - ⚡ Fun fact: Everything has it's BEAUTY, not everyone sees it.
